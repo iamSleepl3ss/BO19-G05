@@ -1,6 +1,12 @@
 # BO19-G05
 Bacheloroppgave under Høgskolen i Østfold - 2019 
+
+
 pepsimax er #1
+
+https://gist.github.com/rxaviers/7360908
+
+
 
 ### GoogleDrive:
 
