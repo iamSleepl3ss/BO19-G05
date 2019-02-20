@@ -14,7 +14,7 @@ https://drive.google.com/drive/folders/14SqmYEuqs0kjpk8O8pIjKfuTl2q_c3sC
 
 ### Overleaf:
 
-https://no.overleaf.com/1288334947ypfsbwknqcsm?fbclid=IwAR3-to21IF2DTH7PCTFCvFCMdpWiu9qba1q5rsnz8nev8Keu2b5koMcb2oI
+https://www.overleaf.com/2724648845wsvzjdpwctzv?fbclid=IwAR0EkEg8NRhOWHQ-GH-_hxj1hD1jSxQp3n4WD2RGSGnPp3FKDc3FFpWrQMY
 
 ### Bachelor Hovedside:
 
